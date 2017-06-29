@@ -1,2 +1,2 @@
 # XXTatteredXX
-It's like *MASTERWORK* but xTATTEREDx
+It's like * MASTERWORK * but xTATTEREDx
